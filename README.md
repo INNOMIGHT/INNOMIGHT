@@ -8,7 +8,7 @@ Reach me at -
 [<img src="https://upload.wikimedia.org/wikipedia/commons/8/83/Steam_icon_logo.svg" width="3.5%"/>](https://steamcommunity.com/id/Innomight/)  &nbsp; [<img src="https://img.icons8.com/color/48/000000/twitter.png" width="3.5%"/>](https://twitter.com/Innomight1)  &nbsp; [<img src="https://img.icons8.com/color/48/000000/linkedin.png" width="3.5%"/>](https://www.linkedin.com/in/vaibhavshrivastavavs/)  &nbsp; [<img src="https://img.icons8.com/fluent/48/000000/facebook-new.png" width="3.5%"/>](https://www.facebook.com/innomight/)  &nbsp; [<img src="https://img.icons8.com/fluent/48/000000/instagram-new.png" width="3.5%"/>](https://www.instagram.com/innomight/)  &nbsp; 
 
 ## &#129302; Content Creation and Gaming
-  Apart from coding, I make coding content on [Instagram](https://www.instagram.com/innomight/) and computer hardware content on [facebook](https://www.facebook.com/innomight) and I am a Tech Guide. I also game and maintain my [Steam Profile](https://steamcommunity.com/id/Innomight). I am also interested in videography and portrait-photography.
+  Apart from coding, I make gaming and setups related content on [Instagram](https://www.instagram.com/vaibhavbytes/) and [facebook](https://www.facebook.com/innomight) and I am a Tech Guide. I also game my [Steam Profile](https://steamcommunity.com/id/Innomight). I am also building innomight, a brand which helps you Transform Your Setup.
 
 ## &#128295; Tools and Technologies
 
